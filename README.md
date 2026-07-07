@@ -10,7 +10,7 @@ The goal of this project was to explore **creative digital media and animated st
 ## 🎬 Watch the Full Video
 
 ▶️ **YouTube Link:**  
-[Watch on my Channel](https://youtube.com/@journeyland3?si=1tQWq5XQS6QNmucC)
+[Watch on my Channel](https://youtube.com/@chulbuli_3?si=vj0eoeFN6LDhtpjG)
 
 ---
 
